@@ -6,7 +6,7 @@
 
 While I'm online in Ponytown...
 
-You probably see me with these two lovely sillies playing /w each other. 💞
+You might see me with these two lovely sillies playing /w each other. 💞
 
 ![Untitled38_20250122141500](https://github.com/user-attachments/assets/a8dab5ee-bc34-4435-bb0e-49f858c40a2e)
 ![Untitled38_20250122141527](https://github.com/user-attachments/assets/8c3b29d2-978d-494c-871e-44b0d3d695e3)
@@ -21,7 +21,7 @@ You might see me either cuddling /w Blue or Ethan, or even both. Hehe.. ✨💕
 
 **Fyi**
 
-I like both HeartGoldshipping and Namelessshipping (though not alot).
+I like both HeartGoldshipping/HibiRe and Namelessshipping/ReGuri (though not alot).
 
 I don't really mind C+H. But it's better if you're my friend/you know Pokémon <3.
 
